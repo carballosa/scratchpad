@@ -1,5 +1,3 @@
 # scratchpad
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=mfec5e1a76d162b854d81d945179b6c6b 
-
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m3dc4ae37d488a67a08638e7604d49c64 
+https://egghead.io/lessons/angular-use-3rd-party-form-controls-with-angular-formly?pl=configuration-based-reactive-angular-forms-with-ngx-formly-465f
