@@ -1,5 +1,4 @@
 # scratchpad
 
 
-https://cognizantcorp.webex.com/join/jean.spriet
-https://cognizantcorp.webex.com/meet/Jean.Affonco
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m2acffeb83597215b344ab2137e4759b1 
