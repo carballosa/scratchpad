@@ -1,4 +1,4 @@
 # scratchpad
 
 
-https://www.mountaingoatsoftware.com/blog/story-points-handling-multiple-teams-and-more-answering-your-questions
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m766f623660db3f485269584d44dada55 
