@@ -1,5 +1,4 @@
 # scratchpad
 
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m6308a51152ae55652b31f65fa89400ce 
-https://cognizantcorp.webex.com/meet/Youssef.ELGharbaoui
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=mdeb9a4eb9982fc4fb8bd5488cbf88281 
