@@ -1,15 +1,17 @@
 # scratchpad
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m6514ff0b861953491c2ae7acc727cd97 
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m285b172cc312dc23509bfc578961b8e2 
 
 https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m8c33a1df22d2f818e08016ec0efd67e1 
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=CjA1LzA4LzIwMjEKUGNZazBYeTh5OFhLY 
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=bFZTaU9kZkNuOHZEZTB1ZUwyTklTQ0hoM 
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=kNMWGRGWGNTWUlCL0FBRkh2T0ZqR3E3TD 
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=FRsRGllUkJKODBpTzcvcFQ2akYvRnFSMG 
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=FYNVp5cjg4Nll1RHgwTEE0YUxPdmVRamx 
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=FRYlUxdmx0L21FY2xZdFFxRVp4aW1ZZ3B 
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=rc1VWbUt3QVRzN1Yvd2Mxc2p4RVVkUkds 
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=iK0JLSnZFYWU5TlZvbW8zaEdHRWs1NnVh 
+
+https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=d2NhMzY0NmhZdTRoUjV3ZU5WLy9aeStyM 
 
 
