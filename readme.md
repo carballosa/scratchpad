@@ -1,4 +1,4 @@
 
 https://www.mountaingoatsoftware.com/story-points-training/videos
 
-https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m0ed4affe279e75792a1d138a5dfa265c
+white: https://cognizantcorp.webex.com/cognizantcorp/j.php?MTID=m8c33a1df22d2f818e08016ec0efd67e1 
